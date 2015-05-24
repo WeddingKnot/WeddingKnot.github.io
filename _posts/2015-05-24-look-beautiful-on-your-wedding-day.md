@@ -13,7 +13,7 @@ My Dream Wedding, French wedding, The Aisle Bridal Boutique, Bliss Bridal Creati
 
 <b>Choose the best bridal make-up service</b>
 
-If you need to look beautiful and flawless on your wedding day, it is better to hire a bridal company that offers professional make-up service. You can consider hiring Digio bridal or French wedding for getting professional make-over, make-up and hair-do services if you want the bridal make-up service from any of the [best bridal shop in Singapore](http://amarewedding.com). You can even consider hiring a local bridal shop that can offer professional make-up service.
+If you need to look beautiful and flawless on your wedding day, it is better to hire a bridal company that offers professional make-up service. You can consider hiring Digio bridal or French wedding for getting professional make-over, make-up and hair-do services if you want the bridal make-up service from any of the [best bridal shop in Singapore](http://amarewedding.com/bridal-shop). You can even consider hiring a local bridal shop that can offer professional make-up service.
 
 <b>Choose the best photography service</b>
 
